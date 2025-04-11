@@ -65,3 +65,9 @@ OlympTrade is a **trusted platform** offering a **smooth and secure trading expe
 With **OlympTrade’s 50% deposit bonus**, you have the chance to **boost your trading funds** and unlock more opportunities in the market. There’s **no need for a promo code**—just **register**, **deposit**, and **get your bonus instantly**!
 
 📢 **Don’t miss out on this chance** to elevate your trading journey. Register on **[OlympTrade](https://smartthriftfinder.com/olymptrade-kostya)** today and claim your **50% deposit bonus**! 🚀
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
